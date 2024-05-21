@@ -11,3 +11,6 @@ utilizp esse espaço para minha organizaçao e compartilhamento dos meus projeto
 00001109015719sp@al.educacao.sp.gov.br
 
 @cauezf
+
+![](![image](https://github.com/cauezf12/cauezf12/assets/169807872/cdcbb241-0859-475f-8f97-e63944125eb9))
+
