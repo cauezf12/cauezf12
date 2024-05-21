@@ -12,5 +12,4 @@ utilizp esse espaço para minha organizaçao e compartilhamento dos meus projeto
 
 @cauezf
 
-![](![image](https://github.com/cauezf12/cauezf12/assets/169807872/cdcbb241-0859-475f-8f97-e63944125eb9))
-
+![](https://media1.tenor.com/m/56MPKrWUTTsAAAAd/wtf-haha.gif)
